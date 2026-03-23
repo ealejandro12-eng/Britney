@@ -47,8 +47,10 @@ Salvar al mono Punch del zoo en el que lo marginan y darle una vida digna junto 
 ### DESARROLLO
 Britney conoce a través de redes sociales la terrible historia del mono Punch y se siente muy afectada por la situación. Se arma de valentía y viaja hasta Japón dónde actúa como una madre protectora. Al llegar allí se sorprende mucho al ver que todo está preparado para la grabación de su nuevo videoclip junto a una quedada de therians.
 
-![](https://static.grupojoly.com/clip/6b8a3f19-d167-449a-bc35-b382041d5012_source-aspect-ratio_1600w_0.jpg)
 
+
+![](https://static.grupojoly.com/clip/6b8a3f19-d167-449a-bc35-b382041d5012_source-aspect-ratio_1600w_0.jpg)
+Nombre: Mono Punch
 ### DESCRIPCIÓN
 Punch es un pequeño mono de 7 meses que fue rechazado por su madre justo después de nacer. Estaba tan triste que sus cuidadores le dieron un peluche al que abrazar y del cual no se separaba. Esta noticia se acabó haciendo viral y dio la vuelta al mundo, tanto que llegó a los oídos de Britney.
 
